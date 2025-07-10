@@ -10,4 +10,4 @@
 
 本站为您汇集最新日本、韩国、欧美精品视频，资源丰富，播放流畅，支持多设备观看，致力于打造优质的成人影视娱乐平台，满足不同用户需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi12 ）</span>
